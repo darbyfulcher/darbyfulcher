@@ -1,2 +1,0 @@
-# darbyfulcher
-Darby Fulcher Website
